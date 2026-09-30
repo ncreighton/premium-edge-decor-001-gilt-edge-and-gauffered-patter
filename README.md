@@ -1,0 +1,2 @@
+# premium-edge-decor-001-gilt-edge-and-gauffered-patter
+Tired of your Notion pages looking like bland spreadsheets while your mind craves the elegance of a gilded library? The Gilt Edge and Gauffered Pattern Library transforms your workspace into a treasury of vintage-inspired beauty.  This template eliminates the guesswork of finding cohesive, sophisticated page decorations by delivering a curated coll
